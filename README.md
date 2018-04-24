@@ -1,0 +1,1 @@
+You can check out different tourist spots in San Diego to visit.
